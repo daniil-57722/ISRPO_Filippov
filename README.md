@@ -20,6 +20,7 @@
 o(*^＠^*)o  
 ### Ну ладно картинок накидаю
 ![](https://phonoteka.org/uploads/posts/2021-07/1625575283_17-phonoteka-org-p-chashka-kofe-na-rabochii-stol-krasivo-oboi-18.jpg)
+-----
 ![](https://rlcatering.ru/wp-content/uploads/2019/11/kofy.jpg)
 Ну теперь и картинки кончились  
 
